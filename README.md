@@ -38,3 +38,10 @@ The goal of this project was to:
 ---
 
 ## 📂 Project Structure
+
+https://github.com/user-attachments/assets/ee658b4d-a0d9-4682-90d3-8ffcd0744bb2
+
+
+https://github.com/user-attachments/assets/fc0085c9-1d77-4dd9-bcc8-0d2d6cb5afbd
+
+
